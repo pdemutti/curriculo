@@ -1,7 +1,7 @@
 
 
 # **Paulo Demutti**
-Front End Developer | São Paulo**(11) 97325-5810****paulodemutti@gmail.com** |
+Front End Developer | São Paulo**(11) 97325-5810 **paulodemutti@gmail.com** |
 | --- | --- |
 |
 # EXPERIÊNCIA
